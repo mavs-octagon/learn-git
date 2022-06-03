@@ -22,12 +22,12 @@ Names:
 2) Braydie Wynn - The Rising Shield Hero S2
 
 2) Tiffany Nguyen - saiki k s1
-Ravi Maitrey - Peaky Blinders
 
+2) Mario Villatoro - Seven Deadly Sins
 
+3) Ravi Maitrey - Peaky Blinders
 
 12) Hussain Alkatheri - SEE
 
 5) Paul Park - Spy X Family
-
 
