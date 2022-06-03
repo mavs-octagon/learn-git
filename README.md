@@ -3,6 +3,7 @@
 Names:
 
 1) Chandra Dasari — Cobra Kai S4
+
 2) Juan Gamez - Breaking Bad
 
 2) Ryan Johnson - H3 Podcast
@@ -23,3 +24,10 @@ Names:
 2) Tiffany Nguyen - saiki k s1
 
 2) Citlali Concha- stuff
+
+Ravi Maitrey - Peaky Blinders
+
+12) Hussain Alkatheri - SEE
+
+5) Paul Park - Spy X Family
+
