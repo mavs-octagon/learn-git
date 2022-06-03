@@ -21,3 +21,5 @@ Names:
 2) Braydie Wynn - The Rising Shield Hero S2
 
 2) Tiffany Nguyen - saiki k s1
+
+2) Mario Villatoro - Seven Deadly Sins
