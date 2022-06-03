@@ -14,10 +14,7 @@ Names:
 
 2) Preston Nguyen - Attack on Titan
 
-3)Nhi Tran
-5) Xavier - Higurashi
-
-2)Hector Alvarado - Andrei Rublev
+2) Hector Alvarado - Andrei Rublev
 
 2) Saja Hussein - Jojo's Bizarre Adventure
 
