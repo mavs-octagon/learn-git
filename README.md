@@ -3,6 +3,7 @@
 Names:
 
 1) Chandra Dasari — Cobra Kai S4
+
 2) Juan Gamez - Breaking Bad
 
 2) Ryan Johnson - H3 Podcast
@@ -23,3 +24,5 @@ Names:
 2) Tiffany Nguyen - saiki k s1
 
 2) Waseem Alkasbutrus - Peaky Blinders
+
+Ravi Maitrey - Peaky Blinders
