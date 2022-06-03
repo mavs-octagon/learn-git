@@ -2,8 +2,8 @@
 
 Names:
 
-
-1. Chandra Dasari — Cobra Kai S4
+1) Chandra Dasari — Cobra Kai S4
+    My name is Nhi Tran
 2. Xavier - Higurashi
 
 
@@ -15,4 +15,5 @@ Names:
 2) Braydie Wynn - The Rising Shield Hero S2
 
 2) Tiffany Nguyen - saiki k s1
+
 
