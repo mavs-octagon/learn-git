@@ -4,11 +4,12 @@ Names:
 
 1) Chandra Dasari — Cobra Kai S4
 
+2) Ryan Johnson - H3 Podcast
+3) Tiffany Nguyen - saiki k s1
+
 2) Alfredo Gutierrez Garcia - Love Is War 
-    My name is Nhi Tran
+
 2. Xavier - Higurashi
-
-
 
 2) Preston Nguyen - Attack on Titan
 
