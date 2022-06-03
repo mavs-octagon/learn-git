@@ -26,3 +26,8 @@ Names:
 2) Mario Villatoro - Seven Deadly Sins
 
 3) Ravi Maitrey - Peaky Blinders
+
+12) Hussain Alkatheri - SEE
+
+5) Paul Park - Spy X Family
+
