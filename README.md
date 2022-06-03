@@ -4,6 +4,12 @@ Names:
 
 1) Chandra Dasari — Cobra Kai S4
 
+2) Alfredo Gutierrez Garcia - Love Is War 
+    My name is Nhi Tran
+2. Xavier - Higurashi
+
+
+
 2) Preston Nguyen - Attack on Titan
 
 3)Nhi Tran
@@ -16,6 +22,3 @@ Names:
 2) Braydie Wynn - The Rising Shield Hero S2
 
 2) Tiffany Nguyen - saiki k s1
-
-
-
