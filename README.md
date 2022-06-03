@@ -23,6 +23,10 @@ Names:
 
 2) Tiffany Nguyen - saiki k s1
 
+7) Pragna Goura - Criminal Minds
+
+Ravi Maitrey - Peaky Blinders
+
 2) Waseem Alkasbutrus - Peaky Blinders
 
 Ravi Maitrey - Peaky Blinders
