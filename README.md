@@ -22,16 +22,14 @@ Names:
 
 10) Braydie Wynn - The Rising Shield Hero S2
 
-11) Tiffany Nguyen - saiki k s1
+11) Pragna Goura - Criminal Minds
 
-12) Pragna Goura - Criminal Minds
+12) Ravi Maitrey - Peaky Blinders
 
-13) Ravi Maitrey - Peaky Blinders
+13) Waseem Alkasbutrus - Peaky Blinders
 
-14) Waseem Alkasbutrus - Peaky Blinders
+14) Mario Villatoro - Seven Deadly Sins
 
-15) Mario Villatoro - Seven Deadly Sins
+15) Hussain Alkatheri - SEE
 
-16) Hussain Alkatheri - SEE
-
-17) Paul Park - Spy X Family
+16) Paul Park - Spy X Family
