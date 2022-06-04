@@ -4,24 +4,34 @@ Names:
 
 1) Chandra Dasari — Cobra Kai S4
 
-2) Bryant Eyum 
-
 2) Juan Gamez - Breaking Bad
 
-2) Ryan Johnson - H3 Podcast
-3) Tiffany Nguyen - saiki k s1
+3) Ryan Johnson - H3 Podcast
 
-2) Alfredo Gutierrez Garcia - Love Is War 
+4) Tiffany Nguyen - saiki k s1
 
-2. Xavier - Higurashi
+5) Alfredo Gutierrez Garcia - Love Is War 
 
-2) Preston Nguyen - Attack on Titan
+6) Xavier - Higurashi
 
-2) Hector Alvarado - Andrei Rublev
+7) Preston Nguyen - Attack on Titan
 
-2) Saja Hussein - Jojo's Bizarre Adventure
+8) Hector Alvarado - Andrei Rublev
 
-2) Braydie Wynn - The Rising Shield Hero S2
+9) Saja Hussein - Jojo's Bizarre Adventure
 
-2) Tiffany Nguyen - saiki k s1
+10) Braydie Wynn - The Rising Shield Hero S2
 
+11) Pragna Goura - Criminal Minds
+
+12) Ravi Maitrey - Peaky Blinders
+
+13) Waseem Alkasbutrus - Peaky Blinders
+
+14) Mario Villatoro - Seven Deadly Sins
+
+15) Hussain Alkatheri - SEE
+
+16) Paul Park - Spy X Family
+
+17) Bryant Eyum 
